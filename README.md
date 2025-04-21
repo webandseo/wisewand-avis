@@ -137,6 +137,7 @@ Allez, parlons argent ! Parce que c'est bien beau toutes ces fonctionnalités, m
 Pour mieux répondre à tous les besoins, Wisewand fonctionne avec deux systèmes :
 
 ▶️ **les packs de crédits à la carte**
+
 ▶️ **les abonnements mensuels ou annuels**
 
 Les tarifs sont structurés en plusieurs paliers, en fonction du volume de mots que tu peux générer. 
@@ -144,6 +145,7 @@ Les tarifs sont structurés en plusieurs paliers, en fonction du volume de mots 
 A partir de 47 €, tu peux accéder à toutes les fonctionnalités de Wisewand et commencer à générer des contenus qui performent sur Google.
 
 👉 [Comparer et choisir un plan Wisewand](https://www.webandseo.fr/go-wisewand/)
+
 🎁 **CODE PROMO -10% : WEBANDSEO**
 
 Applique le coupon exclusif **WEBANDSEO** pour bénéficier d’un rabais immédiat de -10% sur tous les plans Wisewand (valable à vie).
@@ -179,6 +181,7 @@ Le mot de la fin ? Wisewand est un excellent outil dans sa catégorie, un assist
 Si tu l'utilises intelligemment, en complément de tes propres compétences, il peut vraiment t'aider à passer à la vitesse supérieure. N'hésite pas à tester si tu en as l'occasion, tu pourrais être agréablement surpris(e) !
 
 👉 [Lire mon guide & avis détaillé de Wisewand](https://www.webandseo.fr/wisewand/)
+
 👉 [Voir les plans et créer un compte Wisewand](https://www.webandseo.fr/go-wisewand/)
 
 💡 Applique le coupon **WEBANDSEO** pour bénéficier d’un rabais de -10% 👛
